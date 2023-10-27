@@ -11,6 +11,5 @@ Meu nome é Kauã
 kaua.padilha.antunes@escola.pr.gov.br
 
 ![](https://media.tenor.com/hGe0J89tuW0AAAAC/nod-cat-hyper.gif)
-![](https://media.tenor.com/hGe0J89tuW0AAAAC/nod-cat-hyper.gif)
 
 
